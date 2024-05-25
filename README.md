@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ..business informatics.
 - 💞️ I’m looking to collaborate on ...finace and tech blogs
 - 📫 How to reach me ...2200563562
-- 😄 Pronouns: ...the don
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...exicted to visit new place
 
 <!---
